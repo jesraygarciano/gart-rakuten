@@ -1,5 +1,5 @@
-#Welcome to Jav Hunt
+# Welcome to Jav Hunt
 
 
 
-### Documentation was added later
+### Documentation soon!
